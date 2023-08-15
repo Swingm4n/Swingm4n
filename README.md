@@ -1,1 +1,1 @@
-Hi! I'm iinto coding, though that's not my career. I spend a lot of time in VSCode and I'm always open to learn new things :)
+Hey there. Wanna see excellent and original programming techniques? Wrong place. Scroll through my random pile of shitposts and enjoy the ride.
